@@ -11,6 +11,8 @@ There I have Implemented Collaborative Filtering and Content Based Filering Usin
 <br>
 I have key skills like Analytical Thincking,Problem Solving and good communication Skills.
 <br>
+<br>
+<br>
 I am eagerley waiting for an oppertunity to join a tech based company like yours to improve my skills and make the skills useful for the real world.
 <br>
 Thnackyou.
